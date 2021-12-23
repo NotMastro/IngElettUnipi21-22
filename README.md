@@ -10,4 +10,4 @@ ACHTUNG! (sperando che la citazione venga colta)
 Il materiale didattico è realizzato direttamente dagli studenti che hanno frequentato, o che tutt'ora frequentano, il corso; per tale motivo non è in alcun modo da ritenersi ufficiale e quanto fornito non è controllato da alcun docente, se non dagli studenti stessi che segnalano eventuali problemi o apportano loro stessi modifiche e miglioramenti. 
 
 **Quanto fornito è senza alcun scopo di lucro e vuole intendersi unicamente come aiuto per gli studenti
-**
+
